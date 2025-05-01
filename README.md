@@ -2,7 +2,7 @@
 
   <p align="center">
        <a href="http://rentry.co/tierra">
-         <img alt="firey" src="https://file.garden/ZykWd5jJbymhWT_n/Untitled930_20250330215624.png"/></a> 
+         <img alt="uh" src="https://file.garden/ZykWd5jJbymhWT_n/IMG_0229-ezgif.com-crop.png"/></a> 
 <p align="center">
 <a href="https://earthtierra.straw.page">[ `` You <b>are</b> the light, it's not on you it's <i>in</i> you. ,, ]</a>
   <p align="center">
