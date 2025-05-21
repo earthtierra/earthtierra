@@ -2,7 +2,7 @@
 
   <p align="center">
        <a href="https://rentry.co/voidsgui">
-         <img alt="uh" src="https://file.garden/ZykWd5jJbymhWT_n/IMG_0229-ezgif.com-crop.png"/></a> 
+         <img alt="uh" src="https://file.garden/ZykWd5jJbymhWT_n/Untitled955_20250521110611.png"/></a> 
 <p align="center">
 <a href="https://rentry.co/voidsgui">[ `` You <b>are</b> the light, it's not on you it's <i>in</i> you. ,, ]</a>
   <p align="center">
